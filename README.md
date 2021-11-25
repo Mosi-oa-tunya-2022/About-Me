@@ -5,4 +5,4 @@ I have over 15 years of information security management leadership with experien
 ## My Career Goals
 Align my cyber security skills with the current Fintech industry technologies
 ## Why I choose the FinTech career path
-I am always interested in newer technlogies and blockchain, digital wallets and crypto currencies
+I am always interested in newer technlogies such as blockchain, digital wallets and crypto currencies
